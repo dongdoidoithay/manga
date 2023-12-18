@@ -1,5 +1,5 @@
 # manga
-http:/unionmangasbr.org
+http://unionmangasbr.org
 
 
 top trend
